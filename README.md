@@ -1,5 +1,7 @@
 # Shooting Craft  
-22.07.01 ~ 22.07.30
+
+22.03 ~ 22.06
+
 https://www.youtube.com/watch?v=9qyITUnO1Hc
 
 플레이어
