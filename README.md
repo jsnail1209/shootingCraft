@@ -1,6 +1,6 @@
 # Shooting Craft  
 
-22.03 ~ 22.06
+2022.03 ~ 2022.06
 
 https://www.youtube.com/watch?v=9qyITUnO1Hc
 
